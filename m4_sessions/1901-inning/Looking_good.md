@@ -11,10 +11,11 @@ We communicate all the time without saying a word, or even thinking about it! Le
 - Understand how nonverbal communication helps make you a stronger member of a team/Turing/workplace/humanity
 
 ### Session Outline:
-1. 5-10 minutes: (Laura): mingling/intros/feedback on our roles (Amy/all)
-2. 5 minutes: Step brother video
-3. 10 minutes: Split into small groups - ask questions about specific situations/experiences where body language has been involved, a general discussion. Transfer to interviews. 
-4. 5-10 minutes: Do the first quiz. (Amy)
+1. 5-10 minutes: mingling/intros/feedback on our roles (Amy/all)
+2. 10 minutes: Split into small groups - ask questions about specific situations/experiences where body language has been involved, a general discussion. Transfer to interviews. 
+3. 5-10 minutes: Do the first quiz. (Amy)
+POM
+4. 5 minutes: Step brother video
 5. 10-15 minutes: 6 min video of nonverbal communication examples - first muted, gather feedback from students - then play again with sound and with commentary (Rajaa)
 6. 10 minutes: Informational video on nonverbal communication - students take notes, etc.
 7. 5 mintues: Remaining tips and tricks
